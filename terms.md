@@ -170,5 +170,5 @@ resolved in the courts of Lagos State, Nigeria.
 For any questions about these Terms of Service:
 
 **Email:** support@yapp.ng  
-**WhatsApp:** +234 XXX XXX XXXX  
+**WhatsApp:** +234 705 245 6491 
 **Address:** Lagos, Nigeria
